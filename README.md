@@ -7,3 +7,4 @@ Unvollständig (10 von 12 Bezirken)
 
 Gesamtzahl Stimmen: 1,4 Mio Stimmen
 
+Reinickendorf und Marzahn fehlen
